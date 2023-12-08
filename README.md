@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rxpwoo
+- 👋 Hi, I’m @Rxp
 - 👀 I’m interested in building Websites and makkng bread
 - 
 - 🌱 I’m currently learning everything 
